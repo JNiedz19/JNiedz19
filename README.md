@@ -3,5 +3,5 @@
 
 🫐 Student of ✨ *physics* ✨ at the University of Copenhagen \\(^-^)/
 <br>🍓 Avid appreciator of ❤️ *mathematics* ❤️ (っˆڡˆς)
-<br>🍊 Currently fiddling with 🎊 *electronics, programming & hydroponics* 🎊 (ง ͠° ͟ʖ ͡°)ง
+<br>🍊 Currently fiddling with 🎊 *programming* 🎊 (ง ͠° ͟ʖ ͡°)ง
 
